@@ -8,6 +8,8 @@ How does it work?
 
 Logancoin users will be able to start lending, reinvesting or withdrawing their assets right after the ICO, they can do this freely without having to wait a long time, this is because there is no contract. 
 
+By investing in Logancoin you get acess to an exclusive and custom made volatility trading software, this means that you will be increasing your chances of making a future proof and solid investment.
+
 Is it proof of work or stake?
 
 Logancoin can be mined on a very clever algorithm, and all you need to do that is a computer. We have a great surprise on this operation which we will release to the public a few days before the Mining Pool is released. 
