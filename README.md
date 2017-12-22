@@ -25,6 +25,9 @@ Daily Token Available in ICO: 250,000 LGN
 For updates, make sure you follow us on Facebook, Twitter, Telegram and reddit.
 
 https://www.fb.com/logancoinking 
+
 https://www.twitter.com/logancoin 
+
 https://www.t.me/logancoin 
+
 https://www.reddit.com/r/Logancoin/
